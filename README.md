@@ -1,0 +1,1 @@
+# przewidywanie_subskrybcji_karnetu_na-silownie
